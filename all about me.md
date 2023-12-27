@@ -10,3 +10,5 @@
 - I have more boyfriends than girlfriends
 - I love starring at the moon
 - I love taking pictures of sunset 
+- Stan twice for the better life
+- I love myhonebunchsugarplumhubbypatotiesweetiepieloml MINATOZAKI SANA
